@@ -1,0 +1,1 @@
+# SAZX_Auto_win_doors_but_bad.
